@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Mr-XYQC
+- 👀 I’m interested in game
+- 🌱 I’m currently learning python
+- 📫 How to reach me :2267375432@qq.com
